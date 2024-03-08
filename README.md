@@ -13,7 +13,7 @@ rayssa.martins.goncalves@escola.pr.gov.br
 
 @egoncaalves
 
-![](https://media.tenor.com/qdg13PqYbxMAAAAM/yes-baby.gif)
+![](https://media1.tenor.com/m/YR1hxyktKYYAAAAC/cat.gif)
 
 
 
